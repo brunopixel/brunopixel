@@ -7,6 +7,7 @@
 - 📘 Superior de Tecnologia em Sistemas para Internet
 - 🏆 Técnico em Infomática
 - 🖖 "Vida longa e próspera."
+- 🤸‍♀️🍉 Pai da Carol
 
  ##
  
